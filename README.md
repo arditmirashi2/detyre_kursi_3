@@ -1,0 +1,1 @@
+# detyre_kursi_3
